@@ -1,2 +1,2 @@
 # teambuilding
-Teambuilding is love, teambuilding is life.
+Teambuilding is love, teambuilding is life...
